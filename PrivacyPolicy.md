@@ -1,0 +1,3 @@
+# TapUp
+
+Privacy Policy
